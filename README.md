@@ -18,4 +18,4 @@
 
 如果你正在寻找一个真正高清、无广告、每日更新且保护隐私的日本AV免费资源站，这类注重内容品质与用户体验的平台，才是长期收藏与观看的最佳选择。
 
-<span style="display:none;">[Canonical link]( https://github.com/4923/653133 ）</span>
+<span style="display:none;">[Canonical link]( https://github.com/liqi201215/653133 ）</span>
